@@ -1,1 +1,1 @@
-[Marry](https://discord.gg/EZBZVHyUbg)
+[Marry](https://discord.gg/EZBZVHyUbg) [Rain](https://discord.gg/UrwbsUmm)
